@@ -2,7 +2,7 @@
 
 ## Education
 - Nanyang Technological University (_2023 - 2027_) | Computer Engineering
-- National Junior College (_2021- 2022_)
+- Raffles Institution (_2021- 2022_)
 - Crescent Girls’ School (_2017 - 2020_)
 
 ## Work Experience
